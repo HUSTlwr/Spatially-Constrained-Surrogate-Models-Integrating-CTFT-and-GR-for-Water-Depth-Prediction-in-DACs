@@ -1,1 +1,1 @@
-For any inquiries, please contact liuzhan@nhri.cn.
+For any inquiries, please contact liuzhan@nhri.cn or yahu@nhri.cn.
